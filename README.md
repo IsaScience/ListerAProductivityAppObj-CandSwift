@@ -23,9 +23,7 @@ http://hddigitalworks.com
 
 I have literally millions of these domain names and I'm certain each and everyone of them will serve a purpose. As of now, they are hiding in the dark, seeking light....maybe enlightenment
 
-So my firt app:
-
-12beenlighten
+So my first app: 12beenlighten
 
 
 
