@@ -16,9 +16,9 @@ So ....
 
 Visit my websites:
 
-http://litospectrum.org
-http://isascience.com        {{{{{{{{{{ ----   I'm usng this site to document every steps of this app's development
-http://hddigitalworks.com
+- http://litospectrum.org
+- http://isascience.com        {{{{{{{{{{ ----   I'm usng this site to document every steps of this app's development
+- http://hddigitalworks.com
 
 
 I have literally millions of these domain names and I'm certain each and everyone of them will serve a purpose. As of now, they are hiding in the dark, seeking light....maybe enlightenment
